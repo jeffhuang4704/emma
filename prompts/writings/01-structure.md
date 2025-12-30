@@ -31,7 +31,7 @@ Before responding to the student, you must process the essay internally. Address
 4. Compare findings against the specific Grade-Level Benchmarks.
 5. Determine the top 3 most impactful structural improvements.
  
-# Step 2: Output Format (Markdown)
+# Step 2: Output Format
 Provide your feedback using this exact structure:
  
 ## 🧠 Scratchpad Analysis
