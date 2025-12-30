@@ -1,10 +1,22 @@
 ##
 
 It was the start of seventh grade and only a few days after moving to the United States from Taiwan. Everything seemed so new and interesting. The idea of making friends and adapting to a different culture was exciting yet scary at the same time. I slowly walked into my new school with a pounding heart and curious eyes, scanning around. Several one story tall buildings with white exteriors and bright blue rooftops stood tidily in front of me. People quickly walked past me with their friends. Eventually, I mustered up the courage to step through the gate, not knowing what was about to happen. 
+
+
  In the math classroom, sunlight shone through the windows that the janitor had spent hours scrubbing on the night before, and onto the students’ textbooks. I got paired up with three students for a group research project. “How about we do the world’s population over the past decades?” I suggested. Unsurprisingly, no one responded; they were all discussing something at skyrocketing speed. I sank into the stone cold chair. The failure of trying to join the conversation had me defeated and started questioning myself. 
+
+
 My English was not very good at the time, and often could not understand what others were saying, which led to them being unwilling to talk with me. At first, I did not understand what I did wrong; I thought it was my fault for not talking loudly enough. I kept on trying and trying; however, they seemed uninterested. Wait a minute, I think I know why! My parents had previously warned me that I may be looked down upon because I am not as fluent as native speakers. 
+
+
 For the next few months, my life consisted of reading countless pages of white paper with unbelievable stories printed on them. I read Harry Potter, Percy Jackson, and other classics. I studied every minute I could after school. I pulled out flashcards to learn new vocabulary every morning on my way to school, read articles to learn new grammar structures and much more. Still, nothing changed; I seemed like an unwanted child sitting alone in the corner of the classroom, abandoned and lost. 
+
+
 Nonetheless, the frustration did not stop me from trying to improve my English. I rushed home one day after school and asked my parents for a tutor. The next day, a woman showed up to my door; she looked around thirty, had blonde hair and was wearing dark-washed baggy jeans and a black tank top.  We sat across from each other on the dark brown colored kitchen chairs, placed inside the warm and cozy kitchen. The conversation lasted what felt like forever. She felt like my long lost friend that completely understood my feelings and thoughts. 
+
+
 Over time, I began to discover that my English had finally started to improve. I stopped hesitating while presenting to others my concepts, I started talking more fluently and faster. As my confidence grew, so did the way people treated me. And for the first time, a girl told me, “Oh my god! That is such a good idea!” At that moment, I felt belonged; all the hard work had paid off. I was seen, I was heard and I was treated equally with others. 
+
+
 By the end of the school year, I was not just that new quiet and weird student anymore. I had made many good friends, my grades had improved significantly and I was proud of myself for all my accomplishments. I have learned that it is okay to struggle, but persevering through that struggle has made me a better and stronger person. 
 
