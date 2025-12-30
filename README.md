@@ -7,7 +7,9 @@ Refer to the [doc](./prompts/personal_contexts/README.md)
 
 ### Use Gemini Gems
 
-![Gemini Gems](./materials/gemini-gems.png)
+<p align="center">
+  <img src="./materials/gemini-gems.png" width="90%">
+</p>
 
 ### Use prompts to help you review essays
 
