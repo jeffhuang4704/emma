@@ -1,6 +1,5 @@
 # emma
 
-
 ### Setup Personal Context
 
 Refer to the [doc](./prompts/personal_contexts/README.md)
@@ -27,3 +26,7 @@ Refer to the [prompts](./prompts)
 <p align="center">
   <img src="./materials/share-conversation.png" width="60%">
 </p>
+
+### test 1
+
+this is a new section
